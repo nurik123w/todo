@@ -7,4 +7,4 @@
 ## Screenshot
 
 
-[![2021-12-19-04-12-37.png](https://i.postimg.cc/Zn4KBcQV/2021-12-19-04-12-37.png)](https://postimg.cc/472Tjzs9)
+[![2021-12-19-04-12-37.png](https://i.postimg.cc/WzNTb4Dy/2021-12-19-04-12-37.png)](https://postimg.cc/MMFh9qm0)
